@@ -1,2 +1,2 @@
-# 2025-tp0-presentacion-chernandezgreco
-2025-tp0-presentacion-chernandezgreco created by GitHub Classroom
+# Camila Sol Hernández Greco - Legajo: 213.785-9
+Hola! Soy Cami :)
